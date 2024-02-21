@@ -2,7 +2,7 @@ __#Marcus-Curran__
 
 _Covington_
 
-I don't have a current occupation
+Mycurrent Occupation is full time Cor Student
 
 + Rave
 
